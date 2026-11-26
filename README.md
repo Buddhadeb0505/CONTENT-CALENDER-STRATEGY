@@ -31,4 +31,12 @@ image upload approval client
 excel | canva | spreadsheet == 3RD = spreadsheet = live CLIENT = changes.
 
 
-
+= social media = entertaining like = content = PROMOTIONAL
+meme = share relatable -
+70:30
+70% = Entertainment = Hook
+30% = promotional = jab
+monday = 7am = motivational
+lunch time meme
+dinner = bussiness
+page
