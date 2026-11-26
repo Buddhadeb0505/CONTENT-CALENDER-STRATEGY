@@ -52,7 +52,6 @@ this is an ai based interview provider and proctured test provided company url i
 I Want to create a Content Calender for the same i want to target the audience on Facebook, Instagram
 i want you to act as a social media manager = analyze my competitors and let me know what content calender should i create so that i can get more engaement and like, comments, share, save and followers and along with that i can make a organic leads also
 www if content calender looks good then i am planning to create an automation where auto matically post and caption are going to be done
-
 when you create this places ask more more question to ask foe better output
 
 
